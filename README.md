@@ -1,7 +1,7 @@
 # The Outlast Trail Internal MultiCheat
 
 
-join my Discord server: https://discord.gg/mgZEZM3vz6
+join my Discord server: [https://discord.gg/mgZEZM3vz6](https://discord.gg/RJmvVDjspm)
 
 Click the picture below to watch the showcase 
 
